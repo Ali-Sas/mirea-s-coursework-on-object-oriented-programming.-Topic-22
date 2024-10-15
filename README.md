@@ -1,0 +1,1 @@
+# mirea-s-coursework-on-object-oriented-programming.-Topic-22
